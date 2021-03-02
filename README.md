@@ -1,2 +1,0 @@
-# Anhelina-Bykova
-My presentation
